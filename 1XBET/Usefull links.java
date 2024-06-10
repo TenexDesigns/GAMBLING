@@ -12,3 +12,12 @@ https://www.goal.com/en-ke/betting/1xbet-casino-review/blt39c0eccfac69f331
 
   https://slots.info/microgaming/royal-feast/
 https://slots.info/microgaming/
+
+
+
+
+Play this games for free
+-----------------------------------------------------------------
+  https://casino.guru/free-casino-games
+  
+https://casino.guru/sportpesa-casino-ke-review
